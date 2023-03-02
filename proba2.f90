@@ -1,4 +1,4 @@
 kaixo
 
 
-julen naiz eta eibarkoa naiz
+julen naiz eta eibarkoa nai z
